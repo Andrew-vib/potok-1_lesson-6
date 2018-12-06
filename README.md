@@ -1,1 +1,1 @@
-# potok-1_lesson-6
+# potok-2_lesson-6
